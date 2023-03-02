@@ -1,2 +1,2 @@
 # ok
-nymn.fun but more links.
+nymn.fun but more useless links.
